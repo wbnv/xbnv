@@ -1,3 +1,3 @@
 # Hesham
 
-**`Currently Learning (19/DC/)`**
+**`Currently Learning (19/DC)`**
